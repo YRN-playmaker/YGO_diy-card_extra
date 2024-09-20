@@ -3,5 +3,5 @@
 
 
 这套卡组的设计基于kingdom hearts系列的背景故事和人物设定，包含了超量/连接/融合/同调等额外卡组的利用
-![屏幕截图 2024-09-20 213331](https://github.com/user-attachments/assets/dc6694d1-27c4-4281-ab73-bf95c01bee18)
 
+![11](https://github.com/user-attachments/assets/a15996fc-b00a-4c1b-b3db-74bce51cfd7e)
